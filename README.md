@@ -64,6 +64,8 @@ Ability to work independently and meet deadlines
 Highly adaptable to remote and freelance environments
 REFERENCES
 Available upon request
+
+
 ✉️ COVER LETTER
 Writing
 Dear Hiring Manager,
